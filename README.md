@@ -1,4 +1,5 @@
-# OTF-LOGO DEFEND PUBLIC EDUCATION IN ONTARIO CANADA
+# OTF-LOGO 
+# DEFEND PUBLIC EDUCATION IN ONTARIO CANADA
 OTF Concept for logo
 
 Logo is provided as is. I do not own any rights to the OTF or affiliated union names. Portions of this logo have been used with open source images from various resources. I do not own commercial licensing for any of these included images. Examples of these logos are the apple, penci, paintbrush, star and trillium. I offer no liability for this logo concept.
